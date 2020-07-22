@@ -42,7 +42,7 @@
 
 
 
-#### - 🔭 SpaceX FanBoi, 
+#### - 🔭 I’m currently learning AI, ML and Blockchain, 
 
 #### - 🛸 Into High Energy Physics and Astrophysics
 
